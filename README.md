@@ -1,4 +1,4 @@
-# Is ClickFunnels Worth It?
+# Is ClickFunnels Worth It in 2026
 
 This is the most important question anyone considering joining ClickFunnels asks.
 
