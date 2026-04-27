@@ -172,21 +172,21 @@ The $81/month plan (billed annually) makes ClickFunnels more accessible than its
 
 ClickFunnels is designed to help you build sales funnels that convert visitors into paying customers. If you’re actively selling products or running marketing campaigns, even a single successful funnel can easily cover the monthly cost.
 
-When $81/Month Is Worth It
-You sell digital products, courses, or services
-You run paid ads and need high-converting landing pages
-You want an all-in-one tool instead of paying for multiple platforms
-You’re focused on generating leads and sales consistently
+### When $81/Month Is Worth It
+- You sell digital products, courses, or services
+- You run paid ads and need high-converting landing pages
+- You want an all-in-one tool instead of paying for multiple platforms
+- You’re focused on generating leads and sales consistently
 
-👉 In these cases, ClickFunnels can deliver a strong return on investment (ROI).
+In these cases, ClickFunnels can deliver a strong return on investment (ROI).
 
-When $81/Month Is NOT Worth It
-You’re not actively selling anything
-You only need a basic website or blog
-You rely mainly on SEO traffic instead of funnels
-You’re just starting and have a very limited budget
+### When $81/Month Is NOT Worth It
+- You’re not actively selling anything
+- You only need a basic website or blog
+- You rely mainly on SEO traffic instead of funnels
+- You’re just starting and have a very limited budget
 
-👉 In these situations, the cost may outweigh the benefits.
+In these situations, the cost may outweigh the benefits.
 
 **Real Perspective**
 
