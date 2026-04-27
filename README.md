@@ -36,7 +36,7 @@ Here’s what you’ll actually pay:
 - **Optimize plans:** $248/month (Billed Annually)
 - **Dominate plans:** $5,997/year (Billed Annually)
 
-Annual plans can reduce pricing slightly, but it’s still a premium tool.
+Annual plans can reduce [clickfunnels pricing](https://github.com/alvesalexender/ClickFunnels/) slightly, but it’s still a premium tool.
 
 ### What You’re Paying For:
 - Funnel builder  
@@ -270,5 +270,5 @@ It can be useful, but beginners may find it expensive and slightly complex.
 ### Is ClickFunnels better than WordPress?
 Not for SEO or blogging. But it’s better for sales funnels and conversions.
 
-### Can you use ClickFunnels for free?
+### Can you use [ClickFunnels for free](https://github.com/rehrehmulli/ClickFunnels/)?
 You can try it with a free trial, but full use requires a paid plan.
