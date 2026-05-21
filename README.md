@@ -165,7 +165,7 @@ ClickFunnels is worth it — but only for specific types of users.
 - You only want a blog or website  
 - You don’t plan to sell online
 
-# Is ClickFunnels worth $81/month?
+# [Is ClickFunnels worth $81/month](https://assets.ctfassets.net/033w6pupeqcz/5Gk3cTmtz4dtLwOC3OFHsi/30ceab820d029d260e37aa76b7ac23b5/ClickFunnels_Review_457904.pdf)?
 The $81/month plan (billed annually) makes ClickFunnels more accessible than its higher-tier options—but whether it’s worth it depends entirely on how you plan to use it.
 
 👉 For the right user, $81/month can be a smart investment.
