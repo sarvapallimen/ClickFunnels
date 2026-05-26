@@ -1,4 +1,4 @@
-# Is ClickFunnels Worth It? 2026 Beginners and Businesses
+# Is ClickFunnels Worth It? Explained for Beginners and Businesses
 
 If you're thinking about using ClickFunnels, the biggest question is simple:
 
